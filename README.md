@@ -3,11 +3,11 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=joshuafp07&label=Profile%20views&color=0e75b6&style=flat" alt="joshuafp07" /> </p>
 
-- 👨‍💻 All of my projects are available at [https://joshuafp07.github.io/JoshuaFP.github.io/](https://joshuafp07.github.io/JoshuaFP.github.io/)
+- Link to my projects [https://joshuafp07.github.io/JoshuaFP.github.io/](https://joshuafp07.github.io/JoshuaFP.github.io/)
 
-- 📫 Email: **findisel.joshua@gmail.com**
+- Email: **findisel.joshua@gmail.com**
 
-- 📄 CV: [https://drive.google.com/file/d/1fxaASFWnI-lduHuCowyC-htz0OaIXEk5/view?usp=drive_link](https://drive.google.com/file/d/1fxaASFWnI-lduHuCowyC-htz0OaIXEk5/view?usp=drive_link)
+- CV: [https://drive.google.com/file/d/1fxaASFWnI-lduHuCowyC-htz0OaIXEk5/view?usp=drive_link](https://drive.google.com/file/d/1fxaASFWnI-lduHuCowyC-htz0OaIXEk5/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
