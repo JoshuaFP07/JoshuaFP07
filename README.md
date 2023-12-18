@@ -5,9 +5,9 @@
 
 - 👨‍💻 All of my projects are available at [https://joshuafp07.github.io/JoshuaFP.github.io/](https://joshuafp07.github.io/JoshuaFP.github.io/)
 
-- 📫 How to reach me **findisel.joshua@gmail.com**
+- 📫 Email: **findisel.joshua@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fxaASFWnI-lduHuCowyC-htz0OaIXEk5/view?usp=drive_link](https://drive.google.com/file/d/1fxaASFWnI-lduHuCowyC-htz0OaIXEk5/view?usp=drive_link)
+- 📄 CV: [https://drive.google.com/file/d/1fxaASFWnI-lduHuCowyC-htz0OaIXEk5/view?usp=drive_link](https://drive.google.com/file/d/1fxaASFWnI-lduHuCowyC-htz0OaIXEk5/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
