@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=joshuafp07&label=Profile%20views&color=0e75b6&style=flat" alt="joshuafp07" /> </p>
 
-- Link to my projects [https://joshuafp07.github.io/JoshuaFP.github.io/](https://joshuafp07.github.io/JoshuaFP.github.io/)
+- Link to my projects https://joshuafp07.github.io/
 
 - Email: **findisel.joshua@gmail.com**
 
