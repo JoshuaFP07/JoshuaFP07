@@ -7,7 +7,7 @@
 
 - Email: **findisel.joshua@gmail.com**
 
-- CV: https://drive.google.com/file/d/1aVWIA_-T56C_Ar12RRiFxbAl2_bVIrGu/view?usp=drive_link
+- CV: [https://drive.google.com/file/d/1aVWIA_-T56C_Ar12RRiFxbAl2_bVIrGu/view?usp=drive_link](https://drive.google.com/file/d/1AjSqU4H69YkmjFqQw6hHUsqEKfiQUgFz/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
